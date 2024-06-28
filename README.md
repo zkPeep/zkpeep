@@ -1,9 +1,8 @@
-## Hi there 👋
-
+## 🧙🏾‍♂️🤖
 
 
 <p align="center">
-  Previous cofounder @IQWIKI and founder of <a href="https://www.boredelonunicorn.club/"> Bored Elon Unicorn Club</a>. Helped IQ.wiki (formerly known as Everipedia scale the operation to millions of page views a month).<br/><br/><br/>crypto and ai engineer. always deploying.
+  Building on and <a href="https://www.talentforgood.xyz/"> off-chain Ai products. 
 </p>
 <p align="center">
   <a href="https://x.com/Zkpeep_" target="_blank">
