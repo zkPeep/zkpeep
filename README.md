@@ -2,7 +2,7 @@
 
 
 <p align="center">
-  Building on and <a href="https://www.talentforgood.xyz/"> off-chain Ai products. 
+  Building for good. 
 </p>
 <p align="center">
   <a href="https://x.com/Zkpeep_" target="_blank">
